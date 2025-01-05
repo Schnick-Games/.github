@@ -1,5 +1,8 @@
 ## Hi there 👋
-CUNT
+
+Welcome to Schnick Games, creator of much loved titles as:
+- Carbs vs Protein: A Scrote Jenkins Story
+
 
 <!--
 
