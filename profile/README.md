@@ -4,6 +4,8 @@ Welcome to Schnick Games, creator of much loved titles as:
 - Carbs vs Protein: A Scrote Jenkins Story (https://sir-blazealot.itch.io/protein-vs-carbs)
 
 
+🍿 Fun facts - what does your team eat for breakfast? COCK
+
 <!--
 
 **Here are some ideas to get you started:**
