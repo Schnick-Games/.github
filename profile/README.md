@@ -1,4 +1,4 @@
-## Hi there 👋
+## Erm, what the schnick 👋
 
 Welcome to Schnick Games, creator of much loved titles as:
 - Carbs vs Protein: A Scrote Jenkins Story (https://sir-blazealot.itch.io/protein-vs-carbs)
